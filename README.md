@@ -1,4 +1,4 @@
-# An-Outcasts-Guide-For-Outcasts-To-Enjoy-Life
+# An Outcast's Guide For Outcasts To Enjoy Life
 
 There was once a man named Smith. Smith always dressed according to the latest trends. But here’s the catch—when you dress like a celebrity and someone falls for you, are they truly falling for you, or for the image you’ve borrowed from someone they admire? If Smith were to dress, speak, and behave with total disregard for trends or social norms, would the same girl even notice him?
 This is the problem with authenticity and conformity. People always say, “Be yourself.” But the truth is, when you’re truly yourself—raw, unfiltered, and without regard for society’s unwritten rules—you often become invisible. Say you wear the same worn-out clothes to school, to parties, to every event. There might be strength in not caring what others think. After all, caring too much can make you a prisoner of public opinion. But eventually, that strength may turn into alienation. People stop seeing you. You fade into the background. You become invisible.
